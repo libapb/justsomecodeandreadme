@@ -1,2 +1,0 @@
-# justsomecodeandreadme
-nigga
